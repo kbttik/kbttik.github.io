@@ -1,2 +1,0 @@
-# kbttik.github.io
-ioページ
